@@ -1,6 +1,6 @@
 ## MARIA MUNIR
 
-Hello! I am a young curious individual who is passionate about learning about and designing solutions to complex problems! 
+:wave:	Hello! I am a young curious individual who is passionate about learning about and designing solutions to complex problems! 
 
 
 ### Research and Design
